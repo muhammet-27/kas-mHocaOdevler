@@ -1,1 +1,1 @@
-# kasim hoca odevler
+# kası m hoca ödevler
